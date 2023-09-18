@@ -7,7 +7,7 @@ and <br/>would appreciate the chance to connect and discuss further if you're in
 Please feel free to contact me <br/>at your convenience. Thank you 😄  <br/><br/> 
 
 #### 📫 How to reach me 
-[![Gmail Badge](https://img.shields.io/badge/Gmail-d14836?style=flat-square&logo=Gmail&logoColor=white&link=mailto:xx@gmail.com)](mailto:xx@gmail.com) <br/><br/>
+[![Gmail Badge](https://img.shields.io/badge/Gmail-d14836?style=flat-square&logo=Gmail&logoColor=white&link=mailto:xx@gmail.com)](mailto:chloe.ksh.kim@gmail.com) <br/><br/>
 
 #### 🔨 Skills
 <p>
